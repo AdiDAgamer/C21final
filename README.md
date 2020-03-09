@@ -1,9 +1,1 @@
-# SUN IS ON A HOLIDAY
-
-
-
-
-
-
-
-the planets too
+# THE SUN MIGHT GET YOU! BE CAREFUL!!
